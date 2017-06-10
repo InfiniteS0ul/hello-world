@@ -3,4 +3,4 @@
 Hi earthlings
 
 I'm just an eccentric soul with a curious mind. 
-I wonder if we're actually living in a parallel universe.
+Learning how to program can make you more profitable, proficient and compelling.
